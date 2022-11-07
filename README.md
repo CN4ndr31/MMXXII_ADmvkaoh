@@ -1,1 +1,0 @@
-# MMXXII_ADmvkaoh
